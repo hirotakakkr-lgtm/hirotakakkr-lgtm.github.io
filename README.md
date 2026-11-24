@@ -1,0 +1,1 @@
+# hirotakakkr-lgtm.github.io
